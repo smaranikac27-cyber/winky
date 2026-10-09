@@ -10,7 +10,7 @@
 
 | Week | Tier | Hours logged | Entries |
 | --- | --- | --- | --- |
-| Week 1 | Tier 1 | 4h | 1 |
+| Week 1 | Tier 1 | 2h | 1 |
 
 ## Contents
 
@@ -20,16 +20,10 @@
 
 ### 2026-10-09 – ![winky1](https://halflife.hackclub-assets.com/hackclub-half-life/sessions/yWom4p7uyfKsoafA47VY6bp6ruQhKWiQ/99cb9a74ee12fb28ec07071eb8f01229741e7442e689d096431478de279ab254.jpg)
 
-**4h**
+**2h**
 
 ![winky1](https://halflife.hackclub-assets.com/hackclub-half-life/sessions/yWom4p7uyfKsoafA47VY6bp6ruQhKWiQ/99cb9a74ee12fb28ec07071eb8f01229741e7442e689d096431478de279ab254.jpg)
 
-well this is going great so far , today was my first day because i had no time until the weekend, so i could only do this so far and i am proud of it, i really hope i can improve and make it more better, and i acctual did 8 hour but there were alot of pics so i kinda make it small
+well this is going great so far , today was my first day because i had no time until the weekend, so i could only do this so far and i am proud of it, i really hope i can improve and make it more better, and i acctual did 4 hour but there were alot of pics so i kinda make it small
 
 ![winky2](https://halflife.hackclub-assets.com/hackclub-half-life/sessions/yWom4p7uyfKsoafA47VY6bp6ruQhKWiQ/25d2fb52b30e46024d0df8a66113cc5b8fadc4e8f10bab69f7a160e50cc1b1b0.jpg)
-
-![winky3](https://halflife.hackclub-assets.com/hackclub-half-life/sessions/yWom4p7uyfKsoafA47VY6bp6ruQhKWiQ/636bbee4b6d0c3433201e9a4718219773de79c2422e2a7256169d82508c848a5.jpg)
-
-![winky4](https://halflife.hackclub-assets.com/hackclub-half-life/sessions/yWom4p7uyfKsoafA47VY6bp6ruQhKWiQ/792724cfbb5d151903ced6e71a9af7dd6f9a882ff280881a9d94dcdbcf33668a.jpg)
-
-![winky4](https://halflife.hackclub-assets.com/hackclub-half-life/sessions/yWom4p7uyfKsoafA47VY6bp6ruQhKWiQ/792724cfbb5d151903ced6e71a9af7dd6f9a882ff280881a9d94dcdbcf33668a.jpg)
